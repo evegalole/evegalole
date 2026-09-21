@@ -103,7 +103,7 @@ I'm open to opportunities involving:
 
 📧 **Email:** galolewambui@gmail.com
 
-🔗 **LinkedIn:** [[Eve Wambui Galole](https://www.instagram.com/_galole/)]
+🔗 **LinkedIn:** [[Eve Wambui Galole][https://www.linkedin.com/in/eve-galole-2a92b7308/]
 
 ---
 
